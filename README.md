@@ -1,2 +1,2 @@
 # website
-hi this is a great clone of amazon
+hi this for making you fool !
